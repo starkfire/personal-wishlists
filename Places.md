@@ -1,6 +1,6 @@
-# Luxury Restaurants and Bars
+# Restaurants and Bars
 
-## Metro Manila
+### Metro Manila
 
 * **KONDWI**
   * Cocktail Bar and Restaurant
@@ -74,11 +74,6 @@
   * [Website](https://www.okadamanila.com/dine/casual-dining/goryeo)
   * [Menu](https://www.okadamanila.com/sites/default/files/dining/Goryeo-Menu.pdf)
   * [TikTok Reference](https://www.tiktok.com/@danifoodieph/video/7163981069929155866)
-
-# Restaurants and Bars
-
-## Metro Manila
-
 * **Default Cafe Pub**
   * 1844 Pilar Hidalgo Lim Street, Manila
   * [Facebook](https://www.facebook.com/DefaultCafePub/)
@@ -94,7 +89,7 @@
 
 # Affordable Good Food and Eateries
 
-## Metro Manila
+### Metro Manila
 
 * **El Poco Cantina**
   * 1806 Taft Avenue, Pasay
@@ -103,7 +98,7 @@
   * 642 Yuchengco St, Binondo, Manila
   * [TikTok Reference](https://www.tiktok.com/@gelynchiu/video/7145666045779397914)
 
-## Outside Metro Manila
+### Outside Metro Manila
 
 * **Hillsdale Summit**
   * Angono, Rizal
@@ -115,7 +110,7 @@
 
 # Cafes
 
-## Metro Manila
+### Metro Manila
 
 * **Dylan Patisserie**
   * 116 Jupiter, Makati
@@ -152,8 +147,11 @@
   * [Instagram](https://www.instagram.com/alegriacantinamnl/)
   * 5pm (Mon/Tue), 11am (Wed/Thu/Fri/Sat/Sun)
   * 0977 106 1152
+* **Puffy's Souffle Pancake**
+  * Robinson's Magnolia Rd, Quezon City
+  * [TikTok Reference](https://www.tiktok.com/@manuel_olazo/video/7161744978547445019)
 
-## Outside Metro Manila
+### Outside Metro Manila
 
 * **Cafe Hellas**
   * Overlooking Coffee Shop
@@ -168,7 +166,7 @@
 
 # Museums and Galleries
 
-## Metro Manila
+### Metro Manila
 
 * **Destilleria Limtuaco Museum**
   * Intramuros
@@ -179,7 +177,7 @@
 
 # Hotels, Staycations, and Airbnb
 
-## Metro Manila
+### Metro Manila
 
 * **Lime Resort**
   * (Manila) Atang Dela Rama St, Seascape Village, Pasay City
@@ -194,7 +192,7 @@
   * [Website](https://lascasasqc.com/)
   * [TikTok Reference](https://www.tiktok.com/@bjem29/video/7167605031905103130)
 
-## Outside Metro Manila
+### Outside Metro Manila
 
 * **Las Casas Filipinas de Acuzar - Bataan**
   * Brgy. Bagac, Bataan
