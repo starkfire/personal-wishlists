@@ -14,6 +14,12 @@
   * Omakase Restaurant
   * 8 Rockwell, G/F Lopez Drive, Rockwell Center
   * [Instagram](https://www.instagram.com/twelvetenph/?hl=en)
+* **Your Local**
+  * Omakase Restaurant
+  * 106 Esteban, Legazpi Village, Makati
+  * P 1,900 / head
+  * [Facebook](https://www.facebook.com/Yourlocalph/)
+  * [Instagram](https://www.instagram.com/yourlocalph/?hl=en)
 * **Alegria MNL**
   * Cross-Cultural Tasting Menu Restaurant (Filipino | Latin American)
   * GF Uptown Parade, 9th Ave, 38th St, Taguig
@@ -86,6 +92,27 @@
   * [Instagram](https://www.instagram.com/soruizakaya/?hl=en)
   * [TikTok Reference](https://www.tiktok.com/@riveramariannee/video/7152938687117004058)
 
+# Affordable Good Food and Eateries
+
+## Metro Manila
+
+* **El Poco Cantina**
+  * 1806 Taft Avenue, Pasay
+  * [TikTok Reference](https://www.tiktok.com/@loizsebastian/video/7167579117272042778)
+* **Dong Bei Dumpling**
+  * 642 Yuchengco St, Binondo, Manila
+  * [TikTok Reference](https://www.tiktok.com/@gelynchiu/video/7145666045779397914)
+
+## Outside Metro Manila
+
+* **Hillsdale Summit**
+  * Angono, Rizal
+  * [TikTok Reference](https://www.tiktok.com/@blazekristine/video/7153999672695213338)
+* **Jjajang & Jjamppong by Sachunsung**
+  * C&B Circle Mall Antipolo, Rizal
+  * 231 Congressional Ave, Project 8, Quezon City
+  * [TikTok Reference](https://www.tiktok.com/@krazykravingsph/video/7163512885962886427)
+
 # Cafes
 
 ## Metro Manila
@@ -120,6 +147,24 @@
   * Latin American Cafe
   * Forbestown Rd, Taguig
   * [Instagram](https://www.instagram.com/cafealegriamnl/)
+* **Alegria Cantina**
+  * Molito, Alabang
+  * [Instagram](https://www.instagram.com/alegriacantinamnl/)
+  * 5pm (Mon/Tue), 11am (Wed/Thu/Fri/Sat/Sun)
+  * 0977 106 1152
+
+## Outside Metro Manila
+
+* **Cafe Hellas**
+  * Overlooking Coffee Shop
+  * Ternate, Cavite (Before Puerto Azul)
+  * [Facebook](https://facebook.com/cafehellasofficial)
+  * [Facebook - Story](https://www.facebook.com/story.php?story_fbid=pfbid0h34Qgf5iVHSphvyzM9D8v73MFnNpuKAtmFvffQJeSVtrsEYS6Qo7Vj1H3sTLVhJil&id=110967878242310&sfnsn=mo)
+* **Cafe in the Sky**
+  * Poblacion Kabuyao Mt. Santo Tomas, Baguio
+  * [TikTok Reference](https://www.tiktok.com/@jake.kigangan.carino/video/7139654286765509915)
+  * [Tripadvisor](https://www.tripadvisor.com.ph/Restaurant_Review-g298445-d7365358-Reviews-Cafe_in_the_Sky-Baguio_Benguet_Province_Cordillera_Region_Luzon.html)
+  * **Note:** rumored to be a restricted place and you need a connection who can get you inside
 
 # Museums and Galleries
 
@@ -132,7 +177,114 @@
   * [Facebook](https://www.facebook.com/DLCIMuseum/)
   * [TikTok Reference](https://www.tiktok.com/@_lurtneykove/video/7147123181466258715)
 
-# Staycations and Airbnb Offerings
+# Hotels, Staycations, and Airbnb
+
+## Metro Manila
+
+* **Lime Resort**
+  * (Manila) Atang Dela Rama St, Seascape Village, Pasay City
+  * (El Nido) Sitio Lugadia, Brgy. Corong Corong, El Nido, Palawan
+  * (Boracay) Main Road, Station 2, Boracay Island Malay, Aklan
+  * [Home - Lime Hotel and Resorts](https://lime.ph/)
+  * [Lime Resort Manila | Facebook](https://www.facebook.com/limeresortmanila/)
+  * Estimates (Manila)
+    * P 4,200 (Standard Twin), P 5,100 (Deluxe Twin Bayview), P 7,200 (Executive King Bayview)
+* **Las Casas Filipinas de Acuzar - Quezon City**
+  * 134 Roosevelt Ave, San Francisco del Monte, Quezon City
+  * [Website](https://lascasasqc.com/)
+  * [TikTok Reference](https://www.tiktok.com/@bjem29/video/7167605031905103130)
+
+## Outside Metro Manila
+
+* **Las Casas Filipinas de Acuzar - Bataan**
+  * Brgy. Bagac, Bataan
+  * [Website](https://www.lascasasfilipinas.com/Experiences)
+* **Via Appia Tagaytay**
+  * 46-338, Sta. Rita Road, Tagaytay, Cavite
+  * [TikTok Reference](https://www.tiktok.com/@luisferlins/video/7156988600054320410)
+  * [Website](https://www.viaappiatagaytay.com/)
+* **Lafaayette Luxury Suites Baguio**
+  * 1 Loakan Rd, Baguio
+  * [Facebook](https://www.facebook.com/lafaayetteluxurysuites/)
+  * [TikTok Reference](https://www.tiktok.com/@xxx.xts__/video/7149378387033853211)
+* **Anvaya Cove**
+  * Morong, Bataan
+  * [Website](https://anvayacove.com/)
+* **Club Punta Fuego**
+  * Brgy Balaytigue, Peninsula Avenue, Nasugbu, Batangas
+  * [TikTok Reference](https://www.tiktok.com/@stephytries/video/7132658871633579291)
+  * [Website](https://www.clubpuntafuego.com.ph/)
+* **CaSoBe Cocoons**
+  * Calatagan South Beach, Brgy. Sta. Ana, Calatagan, Batangas
+  * [Website](https://cocoons.millennial-resorts.com/)
+  * [Agoda](https://www.agoda.com/casobe-cocoons/hotel/batangas-ph.html)
+  * [TikTok Reference](https://www.tiktok.com/@msjayannp/video/7173194625476234523)
+* **The Tiny House**
+  * 9162-B, Daang Luma Road, Brgy. Kaybagal North, Tagaytay City
+  * [Facebook](https://www.facebook.com/thetinyhousetagaytay)
+* **Papings Farm**
+  * Magallanes, Cavite
+  * staycation for P 2,500
+  * [Facebook](https://www.facebook.com/PapingsStaycation)
+* **Papings**
+  * Dasmarinas, Cavite
+  * Container House
+  * [Facebook](https://www.facebook.com/PapingsStaycation/)
+* **Papings Glampsite**
+  * Magallanes, Cavite
+  * [Facebook](https://www.facebook.com/LakwatseroCaviteno1896/)
+* **Valleypoint Campsite**
+  * Baguio City
+  * [TikTok Reference](https://www.tiktok.com/@helloshayne_/video/7150883564643454235)
+* **Tiny House Container Tagaytay**
+  * [Facebook](https://www.facebook.com/Tiny-House-Container-Tagaytay-109489814756212/?fref=tag)
+* **Dicimulacion Staycation House**
+  * Falcons Court, Village East Avenue, Angono, Rizal
+  * [Dicimulacion Staycation House](https://www.airbnb.com/rooms/50493566)
+  * [Dicimulacion Staycation House III](https://www.airbnb.com/rooms/644705880920779145)
+* **The Lake House at Caliraya**
+  * P 27,700 / night
+  * [Website](https://www.thelakehouse.ph/)
+  * [Airbnb](https://www.airbnb.com/rooms/18025964?source_impression_id=p3_1668166635_7PO2cU%2BZHPy08HTT)
+* **Coast Boracay**
+  * Station 2 Beachfront, Boracay Island, Sunset Road, Malay, Aklan
+  * [Website](https://www.coastboracay.net/)
+  * [Facebook](https://www.facebook.com/coastboracay/)
+  * [Agoda](https://www.agoda.com/coast-boracay/hotel/boracay-island-ph.html?cid=1844104)
+  * [TripAdvisor](https://www.tripadvisor.com.ph/Hotel_Review-g294260-d10006371-Reviews-Coast-Boracay_Malay_Aklan_Province_Panay_Island_Visayas.html)
+  * [TikTok Reference](https://www.tiktok.com/@mommyninspo/video/7166440009619246362)
+* **Squares Beachfront Apartments**
+  * Puerto Galera
+  * [TikTok Reference](https://www.tiktok.com/@.whereto_/video/7168083160683597082)
+  * [Agoda](https://www.agoda.com/squares-beachfront-apartments/hotel/puerto-galera-ph.html?cid=1844104)
+  * [Tripadvisor](https://www.tripadvisor.com.ph/Hotel_Review-g294254-d4874732-Reviews-Squares_Beachside_Apartments-Puerto_Galera_Oriental_Mindoro_Province_Mindoro.html)
+* **Clean Beach**
+  * San Juan, La Union
+  * [Tripadvisor](https://www.tripadvisor.com.ph/Restaurant_Review-g656268-d14011533-Reviews-Clean_Beach-San_Juan_La_Union_Province_Ilocos_Region_Luzon.html)
+* **Kwentong Dagat**
+  * Brgy Sto Nino, Purok 11 Liwliwa, San Felipe, Zambales
+  * [TikTok Reference](https://www.tiktok.com/@_mgd15/video/7158471781911776538)
+  * [Kwentong Dagat – A charming vegan glamping experience](https://www.kwentongdagat.com/)
+* **Liwliwa Beach**
+  * San Felipe, Zambales
+  * [TikTok Reference](https://www.tiktok.com/@mrandmrsweekendtrips/video/7137623815885950234)
+* **Camaya Coast**
+  * Sitio Wain, Mariveles, Bataan
+  * [Camaya Coast](https://camayacoast.com/book)
+  * [TikTok Reference](https://www.tiktok.com/@mybestmommylife/video/7165724743566511387)
+  * [TikTok Reference](https://www.tiktok.com/@mybestmommylife/video/7165730071594945818)
+* **The Backyard Glamp**
+  * M. Valte Road, Brgy. Camachile, Dona Remedios Trinidad, Bulacan
+  * [TikTok Reference](https://www.tiktok.com/@abetmbd/video/7165145783489006875)
+  * [Instagram](https://www.instagram.com/thebackyardglamping/?hl=en)
+  * [Facebook](https://m.facebook.com/thebackyardglamp/)
+* **Aureo La Union**
+  * Munar Residence Rd, San Fernando, La Union
+  * [TikTok Reference](https://www.tiktok.com/@joyceee_ng/video/7156536698409733402)
+* **Silungan Hostel**
+  * San Juan, La Union
+  * [TikTok Reference](https://www.tiktok.com/@justgotfed/video/7166429612015242523)
+  * [Airbnb](https://www.airbnb.com/rooms/35129439?source_impression_id=p3_1668599073_qA3SELcHivnP%2F2N3)
 
 # Others
 
